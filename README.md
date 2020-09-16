@@ -18,4 +18,5 @@ https://www.youtube.com/channel/UCuCyaPqjMJSrtMq8zI7POHw
 
 
 If you are happy to have me a coffee
-buymeacoffee.com/theinfinox
+
+http://buymeacoffee.com/theinfinox
